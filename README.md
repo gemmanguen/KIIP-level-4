@@ -12,20 +12,31 @@ Chúc cả nhà đạt kết quả tốt trong đợt thi vừa rồi còn các 
 ------------------------------------------------------------------------
 ♡Dề pv lop 4, 2020:
 + cô cho 2 hình 떡국, 송편 hỏi đây là món gì, ăn khi nào? Quê hương của bạn có ngày lễ nào, vào ngày đó sẽ làm gì?
+
 + cô hỏi ngày 5.5 và 8.5 là ngày gì, giải thích ý nghĩa? Ở Vn có ngày kỷ niệm nào, giải thích ý nghĩa. 
+
 + Tại sao gọi là kì tích sông Hàn, Hàn Quốc làm thế nào vượt qua thời kì đó? Nền kinh tế quê hương của bạn như thế nào, bạn nghĩ làm thế nào để đưa đất nước phát triển?
+
 ~ Còn đề viết: ở Hq bạn có trải nghiệm không thể quên không? Lí do không thể quên trải nghiệm đó.
+
 ~ đề trắc nghiệm: dàn đều bài lớp 3 và 4.  Hình thức vẫn là mấy câu đầu là bỏ lổ chọn từ vựng phù hợp, chọn từ đồng nghĩa, rồi tới chọn ngữ pháp tương đồng nghĩa. Tiếp theo là lấy bài đọc hoặc phần vhxh phía sau trong quyển 3,4, mình nhớ có bài 난타, 상담, 선거<선거 lấy bài phần vh>,  명소와 유적지 bỏ lỗ rồi chọn đáp án, có câu thì kêu chọn nội dung đúng, có câu kêu chọn nội dung sai. 
+
 ♡ Ở phần trắc nghiệm mình nghĩ. Nên học thuộc nghĩa ngữ pháp lớp 3,4. Đọc đi đọc lại tất cả bài đọc kèm theo dịch thì sẽ ổn.
 ------------------------------------------------------------------------
 Thi lớp 4, 10/10/2020:
 Nói:
 -Hình này là ngày gì? ngày đó ăn gì? Toc cuc và Xong phien
+
 -Tết ở VN làm gì?
+
 -ngày 5/5 là ngày gì? 8/5 là ngày gì?
+
 -mình học tiếng Hàn để làm gì?
+
 -Kinh tế hq trước và nay khác nhau ntn?
+
 Viết:
+
 -trải nghiệm bên Hàn quốc mà bạn ko thể quên được.
 ------------------------------------------------------------------------
 👉 Phương pháp học
