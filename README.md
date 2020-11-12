@@ -6,9 +6,11 @@
 3. Phần thi vấn đáp có hai hình và các câu hỏi liên đến các vấn đề sau
 - Hình 1: 갬핑 (lop 3)
 - Hình 02. 회식 (lớp 3)
-- Câu hỏi xoay quanh 정 
-- câu hỏi về 환경 오염
+- Cho 2 tranh 캠핑 và 회식 모임. và hỏi câu hỏi liên quan về bản thân. (bài 16, lớp 3)
+- Hỏi về 사고방식 của ng Hq và liên hệ bản thân, quê hương.(bài 13)
+- Hỏi về ô nhiễm môi trường, cách giải quyết,  liên hệ bản thân.(bài 16)- 환경 오염
 Chúc cả nhà đạt kết quả tốt trong đợt thi vừa rồi còn các ban chưa thi sau nhớ ôn nhiều phần lớp 3 một chút nhé. Good luck
+
 ------------------------------------------------------------------------
 ♡Dề pv lop 4, 2020:
 + cô cho 2 hình 떡국, 송편 hỏi đây là món gì, ăn khi nào? Quê hương của bạn có ngày lễ nào, vào ngày đó sẽ làm gì?
@@ -47,11 +49,7 @@ P/s: Em ko có thể share đề lớp 4.5 cho anh chỉ được. Vì e xóa h�
 Nick: sunny220690@gmail.com
 Pass: a12345678
 Sau đó vào phần inbox tìm tên lê thị hòa sẽ có một số đề thi. Một số bài viết e sưu tầm.
-------------------------------------------------------------------------
-Lớp 4: (28- 4)
-- Cho 2 tranh 캠핑 và 회식 모임. và hỏi câu hỏi liên quan về bản thân. (bài 16, lớp 3)
-- Hỏi về 사고방식 của ng Hq và liên hệ bản thân, quê hương.(bài 13)
-- Hỏi về ô nhiễm môi trường, cách giải quyết,  liên hệ bản thân.(bài 16)
+
 ------------------------------------------------------------------------
 [GÓC CHIA SẺ]
 👉TÀI LIỆU ÔN THI LỚP 4/ ĐỀ THI ĐÁNH GIÁ LỚP 4 (ngày 4/7/2020) 
