@@ -4,9 +4,7 @@
 1. Đề đa phần là ngữ pháp lớp 3 lớp 4 chỉ có ít
 2. Phần thi viết là “생활비 절약 방법 “
 3. Phần thi vấn đáp có hai hình và các câu hỏi liên đến các vấn đề sau
-- Hình 1: 갬핑 (lop 3)
-- Hình 02. 회식 (lớp 3)
-- Cho 2 tranh 캠핑 và 회식 모임. và hỏi câu hỏi liên quan về bản thân. (bài 16, lớp 3)
+- Hình 1: 갬핑 (lop 3), hình 02. 회식 (lớp 3), cho 2 tranh 캠핑 và 회식 모임. và hỏi câu hỏi liên quan về bản thân. (bài 16, lớp 3)
 - Hỏi về 사고방식 của ng Hq và liên hệ bản thân, quê hương.(bài 13)
 - Hỏi về ô nhiễm môi trường, cách giải quyết,  liên hệ bản thân.(bài 16)- 환경 오염
 Chúc cả nhà đạt kết quả tốt trong đợt thi vừa rồi còn các ban chưa thi sau nhớ ôn nhiều phần lớp 3 một chút nhé. Good luck
