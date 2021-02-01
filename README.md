@@ -1,5 +1,18 @@
 # KIIP-level-4
 ------------------------------------------------------------------------
+Dich tieng Viet:
+http://hanquoclythu.com/2017/11/dich-tieng-viet-sach-lop-hoi-nhap-xa-2/
+
+Ngu phap:
+http://hanquoclythu.com/2020/12/nguphapkiip4/
+
+Giao trinh online:
+https://kcenter.korean.go.kr/repository/ebook/culture/SB_step4/index.html
+
+Sach bai tap online:
+https://kcenter.korean.go.kr/repository/ebook/culture/WB_step4/index.html
+
+------------------------------------------------------------------------
 
 Đề thi lớp 4 hôm 24.8.2019
 1. Đề đa phần là ngữ pháp lớp 3 lớp 4 chỉ có ít
